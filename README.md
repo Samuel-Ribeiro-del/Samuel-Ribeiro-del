@@ -1,4 +1,4 @@
-# 👋 Oii! Eu sou o Samuel
+# 👋 Oi! Eu sou o Samuel.
 
 Bem-vindo ao meu perfil!
 
